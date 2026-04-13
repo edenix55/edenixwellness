@@ -1,2 +1,2 @@
 # edenixwellness
-Through bioenergetics and naturopathy, we help you restore balance, enhance energy, and support your body’s natural healing. Personalized assessments and natural therapies guide you to improved wellness, vitality, and overall health at every stage of life.
+Edenix helps you uncover hidden stressors in your four core body systems—hormone/endocrine, immune, detoxification, and gastrointestinal systems—with bioenergetic wellness scans and naturopathy-restoring your body's divinely designed capacity to self-heal.
